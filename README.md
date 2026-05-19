@@ -13,9 +13,8 @@ Gosto de aprender novas ferramentas, criar soluções práticas e trabalhar em p
 ## Me encontre em
 
 - Email: yurisatoryo@gmail.com
-- GitHub: [@yurisatoryo](https://github.com/yurisatoryo)
-- LinkedIn: coloque-seu-link-aqui
-- Discord: coloque-seu-discord-aqui
+- GitHub: [@yurisatoryo](https://github.com/YuuriSato)
+- Discord: ryoichi45
 
 ---
 
